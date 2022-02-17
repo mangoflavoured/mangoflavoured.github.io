@@ -1,1 +1,1 @@
-# ai-diabetes
+# mangoflavoured.github.io
